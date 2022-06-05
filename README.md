@@ -50,7 +50,7 @@ We are on a mission to make our communities, partners and our own organization b
 * Petrofac International - UAE
 * ADCO International - UAE
 * PENCOL International - UAE
-* CB I INTERNATIONAL - UAE 
+* CB I International - UAE 
 * WORLEY International - Oman
 
 #### National Groups
